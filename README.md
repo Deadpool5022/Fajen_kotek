@@ -1,0 +1,2 @@
+# Fajen_kotek
+stron
